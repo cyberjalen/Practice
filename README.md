@@ -1,3 +1,3 @@
 # Practice
 
-## Basically anything that I'm learning to use/researching more on.
+## Basically anything that I'm learning/practicing and on.
