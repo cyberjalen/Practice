@@ -1,3 +1,3 @@
 # Practice
 
-Basically anything that I'm learning/practicing.
+Things I'm learning/practicing.
